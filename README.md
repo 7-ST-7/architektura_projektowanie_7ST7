@@ -1,0 +1,1 @@
+# architektura_projektowanie_7ST7
